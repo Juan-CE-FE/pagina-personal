@@ -1,0 +1,1 @@
+Esta página es simpemente para dar información de quien soy, lo que hago actualmente y mostrar un par de hobbies que tengo, además sirve como trabajo para las prácticas del grado superior que estoy realizando actualmente.
